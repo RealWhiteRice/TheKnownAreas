@@ -1,0 +1,3 @@
+Relationships: Son of [[Supreme Comander]].
+Affiliations: [[PUD Council]] member, [[Adventurer's Guild]] Guildmaster.
+Background: He was raised to become the next Supreme Comander of the [[Bounty Hunters]]. However, realizing that begin an adventurerer was better suited for him, he left home and got his adventurer's license. He soon raised to the top, becoming level 1,000. Shortly after he reached max level, he was selected by the previous guildmaster to become the next guildmaster. 
